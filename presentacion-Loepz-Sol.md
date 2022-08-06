@@ -1,0 +1,1 @@
+Hola gente, soy Sol Lopez. Formo parte de la familia "abortados de las ingenierias" y esta materia tiene toda la pinta de ser re divertida. Tomen Agua. bye 
